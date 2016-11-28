@@ -1,2 +1,2 @@
 # LakeNeo
-Lake Neo
+Have you ever been to Lake Neo? take a tour through the lost land, and you may encounter it. As a experienced adventurer, I'll share a secret about Lake Neo with you all: when you take a galnce at your reflection onto its surface, something special will make you scream out... 
